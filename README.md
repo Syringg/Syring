@@ -1,2 +1,3 @@
 # Syring
-aa
+
+YO WTFK GIVE ME A FU### DICK YA
